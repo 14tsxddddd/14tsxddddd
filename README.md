@@ -1,9 +1,9 @@
-![MasterHead](https://i.ytimg.com/vi/c1M5iHp2N3U/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AH-CYAC0AWKAgwIABABGH8gEygWMA8=&rs=AOn4CLArVRCkkat9-VyF7IyLXU6pMICDzg)
+![MasterHead](https://wallpapercave.com/wp/wp14491223.jpg)
 
 <h1 align="center">Hi 👋, I'm Steven</h1>
 <h3 align="center">Just a normal boy and Need for Speed ​​Most Wanted player</h3>
 
-<img align="right" alt="Coding" width="400" src="https://i.pinimg.com/originals/60/1c/da/601cdaedd8d20c49f8c61cb4ecabdaac.gif">
+<img align="right" alt="Coding" width="400" src="https://i.pinimg.com/originals/ab/b1/8b/abb18b3ff9da8c65e6936f27476f7603.gif">
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=14tsxddddd&label=Profile%20views&color=0e75b6&style=flat" alt="14tsxddddd" /> </p>
 
