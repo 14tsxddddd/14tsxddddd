@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Javascripts**
 
-- 📫 How to reach me **stevenmicausa@gmail.com**
+- 📫 How to reach me **Queteimporta12@gmail.com**
 
 - ⚡ Fun fact **I like Red Bull and Monster**
 
